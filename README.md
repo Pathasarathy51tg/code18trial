@@ -10,3 +10,4 @@ Advocate postpones meet as usual
 ver2 changes
 leaving  from home 6 pm to jalpaan
 will drive or take bus
+after dinner return home by 10pm
